@@ -1,0 +1,2 @@
+# CurrynaSoderberg
+カレーナ・ソーダバーグ
